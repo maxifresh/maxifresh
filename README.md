@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @maxifresh
 - 👀 I’m interested in UI/UX Design
 - 🌱 I’m currently learning more ways to make more effective workflow
-- 💞️ I’m looking to collaborate firms
+- 💞️ I’m looking to collaborate with firms
  with growth in perspective 
  - 📫 How to reach me : Twitter - @d_maxifresh, Phone - 08069100973
 
